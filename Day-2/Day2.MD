@@ -1,0 +1,1 @@
+Successfully completed Day 2 using previous knowledge and new concepts I learnt today : ) 
